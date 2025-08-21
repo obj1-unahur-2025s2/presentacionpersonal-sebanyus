@@ -6,9 +6,9 @@
 Por ese motivo, estaba ingresando a esta carrera. La decisión la tome basandome en un gusto por la tecnología y puntualmente con las computadoras que tengo desde pequeño; ya que por influecias de mi papá, siempre tuve mucho contacto con ellas. Si bien mi conocimiento era más técnico sobre hardware y sistemas operativos, allá por el 2019 comence algunos cosos en la UTN para tener los primeros acercamientos con la programación.
 Retomando el tema de esta carrera, para mi, haber cursado el 1er cuatrimestre de forma totalmente virtual, fue caotíco y termine practicamente dejandolo. Lo que más me entusiasmaba de comenzar la facultad, era la vida universitaria; algo totalmente inexistente en el contexto social que estabamos atravesando.
 Al comienzo del segundo cuatrimestre, encuentro mi primera experiencia laboral en el rubro Informático, como soporte para un proyecto que contaba con una web y aplicación mobile. ¿La carrera? Bien...gracias.
-Apunte todo mi interes en el nuevo trabajo, con lo que cuesta que te den la primera oportunidad...sin experiencia previa.
+Apunte todo mi interés en el nuevo trabajo, con lo que cuesta que te den la primera oportunidad...sin experiencia previa.
 Luego de un año y medio aproximadamente, me ofrecieron un puesto de Analista Funcional, puesto que mantengo actualmente pero en otro lugar.
-Gracias a estos 5 años en el rubro y la experiencia obtenida, pude encontrar por donde va mas mi interes en este campo, que es super abarcativo y ¡gigante!
+Gracias a estos 5 años en el rubro y la experiencia obtenida, pude encontrar por donde va mas mi interés en este campo, que es super abarcativo y ¡gigante!
 En paralelo, fui motivandome mucho más con la carrera, y se podría decir que el mayor entusiasmo, lo pude conseguir hace solo un añito y medi atrás. Teniendo que pasar por 4 años de tire y afloje.
 **Pero...acá estamos**, con muchisimo entusiasmo y con ganas de seguir avanzando, aprendiendo a consciencia. Entendí que cada persona tiene sus tiempos y su ritmo. Que las cosas que funcionan para uno, para otro puede que no y de eso se trata. De encontrar las formas y maneras que se adecuen a uno mismo, sobre todo, si las ganas están.
 

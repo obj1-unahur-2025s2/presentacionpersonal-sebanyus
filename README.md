@@ -15,7 +15,7 @@ En paralelo, fui motivandome mucho más con la carrera, y se podría decir que e
 
 ### Datitos random sobre mi
 -     Vivo solo con mi perro Lebron, desde hace 7 años aproximadamente.
--     Actualmente resido en Morón, cerquita de la facultad. Si tenes esa posibilidad, ¡es clave!
+-     Actualmente resido en Morón, cerquita de la facultad.
 -     Mi pasión son los Autos.
 -     Mi ocío favorito es viciar, sobre todo juegos singleplayer con buenas historias, de esas que no te olvidas.
 -     Además, me encanta el cine, la fotografía y la música.

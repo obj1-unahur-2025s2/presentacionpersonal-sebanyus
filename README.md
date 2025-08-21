@@ -23,7 +23,7 @@ En paralelo, fui motivandome mucho más con la carrera, y se podría decir que e
 
 ### ¿Que quisiera lograr en este rubro?
 
-Uno de los tantos proyectos de vida que tengo, es dejar útil algo para la sociedad, en agradecimiento por haberme materializado como humano jaja. Por ese motivo, el día de mañana quiero poder crear algo útil, tecnológicamente hablando, que aporte valor, ayude o de una mano. Preferentemente, algo relacionado con animales.
+Uno de los tantos proyectos de vida que tengo, es dejar algo útil para la sociedad, en agradecimiento a la vida por haberme materializado como humano jaja. Por ese motivo, el día de mañana quiero poder crear algo útil, tecnológicamente hablando, que aporte valor, ayude o de una mano. Preferentemente, algo relacionado con animales.
 
 Por último, me despido con una foto que saque de la pataa de Lebron. **¡Hasta la próxima!**
 

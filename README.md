@@ -25,5 +25,6 @@ En paralelo, fui motivandome mucho más con la carrera, y se podría decir que e
 
 Uno de los tantos proyectos de vida que tengo, es dejar útil algo para la sociedad, en agradecimiento por haberme materializado como humano jaja. Por ese motivo, el día de mañana quiero poder crear algo útil, tecnológicamente hablando, que aporte valor, ayude o de una mano. Preferentemente, algo relacionado con animales.
 
-Por último, me despido con una foto que le saque a Lebron. **¡Hasta la próxima!**
+Por último, me despido con una foto que saque de la pataa de Lebron. **¡Hasta la próxima!**
 
+![Pata Lebron](./sebanyus-7623.jpg)

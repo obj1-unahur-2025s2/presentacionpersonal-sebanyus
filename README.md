@@ -9,15 +9,15 @@ Al comienzo del segundo cuatrimestre, encuentro mi primera experiencia laboral e
 Apunte todo mi interés en el nuevo trabajo, con lo que cuesta que te den la primera oportunidad...sin experiencia previa.
 Luego de un año y medio aproximadamente, me ofrecieron un puesto de Analista Funcional, puesto que mantengo actualmente pero en otro lugar.
 Gracias a estos 5 años en el rubro y la experiencia obtenida, pude encontrar por donde va mas mi interés en este campo, que es super abarcativo y ¡gigante!
-En paralelo, fui motivandome mucho más con la carrera, y se podría decir que el mayor entusiasmo, lo pude conseguir hace solo un añito y medi atrás. Teniendo que pasar por 4 años de tire y afloje.
-**Pero...acá estamos**, con muchisimo entusiasmo y con ganas de seguir avanzando, aprendiendo a consciencia. Entendí que cada persona tiene sus tiempos y su ritmo. Que las cosas que funcionan para uno, para otro puede que no y de eso se trata. De encontrar las formas y maneras que se adecuen a uno mismo, sobre todo, si las ganas están.
+En paralelo, fui motivandome mucho más con la carrera, y se podría decir que el mayor entusiasmo, lo pude conseguir hace solo un añito y medio atrás. Teniendo que pasar por 4 años de tire y afloje.
+**Pero...acá estamos**, con muchísimo entusiasmo y con ganas de seguir avanzando, aprendiendo a consciencia. Entendí que cada persona tiene sus tiempos y su ritmo. Que las cosas que funcionan para uno, para otro puede que no y de eso se trata. De encontrar las formas y maneras que se adecuen a uno mismo, sobre todo, si las ganas están.
 
 
 ### Datitos random sobre mi
--     Vivo solo con mi perro Lebron, desde hace 7 años aproximadamente.
+-     Vivo con mi perro Lebron, desde hace 7 años aproximadamente.
 -     Actualmente resido en Morón, cerquita de la facultad.
 -     Mi pasión son los Autos.
--     Mi ocío favorito es viciar, sobre todo juegos singleplayer con buenas historias, de esas que no te olvidas.
+-     Ocio favorito es viciar, sobre todo juegos singleplayer con buenas historias, de esas que no te olvidas.
 -     Además, me encanta el cine, la fotografía y la música.
 
 
